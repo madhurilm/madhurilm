@@ -5,5 +5,5 @@ who passionate to work in the area of Data Science and Analysis. I have complete
 - 🔭 I’m currently working on different data analytics projects.
 - 👯 I’m looking to collaborate to work on Data analytics.
 - 📫 How to reach me: madhuri.mummaneni@outlook.com
-- Hobbies: Loves to paint and listening to Music
+- ⚡ Hobbies: Loves to paint and listening to Music
 
